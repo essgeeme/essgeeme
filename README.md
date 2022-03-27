@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @essgeeme
+- 👀 I’m interested in lots of things
+- 🌱 I’m currently learning lots of things
